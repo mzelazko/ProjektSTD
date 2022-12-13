@@ -1,1 +1,1 @@
-# ProjektSTD
+Michał Żelazko
